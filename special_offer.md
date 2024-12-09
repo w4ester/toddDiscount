@@ -1,10 +1,10 @@
-# 🎉 Special Lifetime Discount Offer 🎉
+# Special Lifetime Discount Offer
 
 ## Limited Time Offer:
 
 **10% OFF FOR LIFE**
 
-*Only valid if Will gets this working! 😄*
+*Only valid if Will gets this working! :)*
 
 ---
 
